@@ -1,0 +1,12 @@
+# Personal source material and derived output - not for the public repo
+source/
+ingested/
+
+# Python
+__pycache__/
+*.pyc
+.venv/
+venv/
+
+# Env / secrets
+.env
