@@ -1,0 +1,76 @@
+DREAD: New UI Elements (on top of OMINOUS)
+
+These are the new things DREAD needs on screen, added on top of OMINOUS's current screens (Mark's UI Elements List).
+
+GAME SCREEN: needed by December
+
+1. Uncertainty Counter display (client priority #1)
+   - A big number: "Possible boards the enemy is considering about you: ___"
+   - It updates every turn. A small arrow shows if it went up or down since last turn.
+   - Color: green when high (we're well hidden), red when low.
+
+2. Uncertainty graph
+   - A small line chart of that number across the whole game.
+   - It's the strongest visual for demos, because you can watch it move.
+
+3. Observation Log panel (client priority #2)
+   - A list of enemy pieces and where each was last seen. Example: "Knight, f6, 3 turns ago."
+   - Optional: a faded "ghost" piece on the board at the last-seen square, with the turn count.
+
+4. Move suggestions shown on the board
+   - Highlight the piece to move and draw an arrow to its target square, instead of the text popup. This was Mark's idea from the 1to1.
+
+5. Move comparison table (for the Deception Scorer)
+   - Top moves listed with 3 columns: chess strength, boards left for the enemy, and overall rank.
+   - Clicking a row previews that move on the board.
+
+6. "Thinking" indicator
+   - A spinner plus a seconds counter while the engine works. The client allows 10 to 100 seconds a move, so the screen must not look frozen.
+
+7. Turn prompts on the black screen
+   - "Press Enter to lock in your move" and "Press Enter to start the other player's turn." Right now nothing tells you, so it looks frozen.
+
+8. DREAD / OMINOUS suggestion switch
+   - Already on Mark's list. Keep it, so demos can compare the two side by side.
+
+SETTINGS: needed by December
+
+9. Hide vs. play strong slider
+   - How much DREAD favors staying hidden versus making the strongest chess move.
+   - The team still has to agree how this works (see 4.7 in the 1to1 doc).
+
+10. Time limit per move (seconds).
+
+11. "Unknown" option for opponent bias, as the default. The client said not to assume we know the enemy's habits.
+
+12. Show/hide toggles for the graph, the ghost pieces and the comparison table.
+
+LOOK AND FEEL
+
+13. A naval, dark, sharp, "weapons-grade" style. Everything in one resizable window.
+
+14. Have a presentable visual ready at every milestone, not just December. The client ranked good demos very high.
+
+LATER (after the MVP)
+
+15. Explainability panel. The client's 6 items, each turn:
+   - the board we believe is real
+   - the enemy's most likely move
+   - the enemy's most dangerous move
+   - our options
+   - where the information came from (example: "bishop saw queen on d5, 3 turns ago")
+   - how many possibilities are still unknown
+
+16. Danger map: shade each square by how likely an enemy piece can see it.
+
+17. "Enemy's view" board: where DREAD thinks the enemy believes our pieces are.
+
+18. Replay a saved game, from the game log.
+
+19. Opponent profile screen: past games and learned habits, for Opponent Learning.
+
+20. Network screens for two laptops: connection status and a secure-connection lock icon. These go with the Game Server and Encryption.
+
+OPEN QUESTION FOR MARK
+
+Do we have to keep tkinter, OMINOUS's current screen tool? We still haven't asked the client.
