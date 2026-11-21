@@ -1,73 +1,77 @@
 # Chapter 1: The Meltdown
 
-Isaac had been irritable all week. Small things set him off—the way Aage had placed a plate on the table, the tone of his voice when asking if Isaac had eaten, even the sight of him reading quietly in the chair that Isaac suddenly decided he had wanted to sit in.
+Isaac had been irritable all week. I'd noticed it—the way he snapped when I placed a plate on the table wrong, the edge in his voice when I asked if he'd eaten, even the sudden announcement that he'd wanted the chair I was sitting in and I had no business being there.
 
-But it wasn't until dinner that it became a full storm.
+I know the signs by now. I know what a twelve-year-old body is doing to him. I know that nothing I say will help until the storm passes.
 
-Aage had suggested, mildly, that Isaac might want to try the stew he'd made. Nothing accusatory. No edge. Just a suggestion, the same one he offered most nights: *You should eat.*
+But I still tried.
 
-Isaac had eaten. He'd eaten it quickly, almost angrily, spooning it into his mouth without tasting it, and something in that moment—maybe the satisfied look in Aage's eyes, maybe the way his hand had reached out as if to touch Isaac's shoulder—snapped something inside him.
+At dinner, I'd made stew. It was something he actually liked, something I'd watched him eat without pushing back. I ladled some into a bowl and set it in front of him, then made the casual suggestion I make most nights: "You should eat."
 
-"Stop watching me," Isaac said, his voice already rising.
+He ate it fast, angry, like the spoon was a weapon. And somewhere in the middle of that, something broke.
 
-"I wasn't—"
+"Stop watching me," he said, his voice already climbing.
 
-"You are. You're always watching. Like I'm going to disappear if you look away for a second. Like I can't take care of myself."
+I set down my spoon. "I wasn't—"
 
-Aage set down his spoon slowly. "Isaac—"
+"You are. You're always watching. Like I'm going to disappear if you look away for a second."
 
-"No. No, don't. I know what you're doing. You're trying to fix me. Make me eat better, sleep better, *be* better." Isaac stood up from the table, his chair scraping back loudly. "I'm not broken."
+I recognized the irony. He'd learned that fear from somewhere real. It wasn't stupid or wrong. But I still had to respond, and there was no good answer to give a twelve-year-old in the grip of whatever this was.
 
-"I never said you were."
+"Isaac—" I started.
 
-"You don't have to say it. I can see it every time you look at me. Like I'm some fragile thing that might shatter if you don't manage me perfectly." Isaac's voice cracked. He hated how it cracked. "I hate it. I hate being watched like that."
+"No. I know what you're doing." He stood up hard enough that his chair scraped against the floor like a scream. "You're trying to fix me. Make me eat better, sleep better, *be* better. I'm not broken."
 
-Aage was quiet for a moment. "What do you want me to do? Ignore you?"
+"I never said—"
 
-"I want you to—" Isaac stopped, his jaw working. He didn't even know. That was the worst part. He didn't know what he wanted, only that something inside him felt too big, too hot, like his skin was too small to contain it. "Just. Don't look at me like that."
+"You don't have to say it." His voice cracked and he hated it, I could see that in the way his face flushed. "I can see it every time you look at me. Like I'm some fragile thing. Like I'll shatter if you don't manage me perfectly."
+
+I wanted to reach across the table. I wanted to tell him that wasn't what I saw, that I saw strength in him, that the watching came from somewhere else entirely. But I'd learned that explanations in the middle of this make it worse.
+
+"What do you want me to do?" I asked instead. "Ignore you?"
+
+"I want you to—" He stopped, his jaw working, his eyes filling up. He didn't know. That was the core of it—he didn't know what he wanted, only that something inside him was too big, too hot, pressing against the walls of his own skin. "Just. Don't look at me like that."
 
 "Like what?"
 
-"Like you need me to be okay so that you can be okay." The words came out before Isaac could stop them, and they were too close to something true, something that made his chest tighten. "Like my being okay is the only thing keeping you alive."
+The words that came next hit like a physical thing: "Like you need me to be okay so that you can be okay. Like my being okay is the only thing keeping you alive."
 
-Aage's expression shifted—a flicker of something hurt crossing his face before he controlled it. "That's not fair."
+It was close enough to true that I couldn't answer immediately. I felt something in my face shift, something hurt trying to surface before I locked it down. This was a twelve-year-old speaking. I needed to remember that. This was a child in the grip of hormones and terror, not an indictment.
 
-"I don't care if it's fair." Isaac could feel tears starting, hot and unwanted, rising up his throat. His voice got louder to cover them. "I'm tired, Aage. I'm tired of being your proof that everything's going to be okay. I'm tired of feeling like I'm failing you every time I'm sad or angry or just—" He gestured wildly. "Human."
+"That's not fair," I said quietly.
+
+"I don't care if it's fair." Tears were streaming down his face now, and he was getting louder to cover them, the way kids do. "I'm tired, Aage. I'm tired of being your proof that everything's going to be okay. I'm tired of feeling like I'm failing you every time I'm sad or angry or just—" He gestured wildly, like he was trying to describe something he had no words for. "Human."
 
 "You're not—"
 
-"Stop talking!" Isaac's voice broke completely now, tears spilling over. His hands were shaking. Everything was shaking. "You don't get to fix this. You don't get to say something reasonable and make it all fine again. I'm *mad* at you. I'm mad and I don't even know why and you can't just—fix it with your voice and your eyes and your whole thing where you *understand* everything."
+"Stop talking!" His voice broke completely. His hands were shaking. Everything about him was shaking. "You don't get to fix this. You don't get to say something reasonable and make it fine again. I'm mad at you. I'm mad and I don't even know why and you can't just—fix it with your voice and your eyes and your whole thing where you understand everything."
 
-Aage stood up slowly, reaching out. "Isaac, come here—"
+I stood up slowly, reaching across the table toward him. Some part of me still believed I could soothe this. "Isaac, come here—"
 
-"No." Isaac backed away, his chair nearly falling over. His face was hot with tears, his breathing coming fast and hard. This wasn't fair. None of this was fair. He felt like he was going to come apart. "No, I can't—I can't do this right now. I can't look at you right now."
+"No." He backed away so fast his chair nearly went over. His face was red and wet. "No, I can't—I can't do this right now. I can't look at you right now."
 
-He turned and left the kitchen before Aage could respond, his feet taking him through the house and out into the gathering dark. His chest was heaving. His skin felt like it was full of electricity, like his blood was moving too fast. 
+He was gone before I could respond, through the kitchen, through the house, out into the gathering dark. I heard the door slam like a punctuation mark on something ending.
 
-He didn't know what he was looking for. He just knew he had to move, had to get away, had to find somewhere the pressure inside him could breathe.
-
-Behind him, the house fell silent. And in that silence, Isaac knew—with the absolute certainty of someone who had learned early what abandonment looked like—that he had ruined everything.
-
-That Aage wouldn't follow.
-
-That he'd finally proven, as he'd always suspected, that he was too much.
+I sat back down at the table. Our dinner was still there, cooling. I didn't move.
 
 ---
 
-Inside, Aage sat at the table, their dinner growing cold between them. He understood, in the way he always did, what Isaac needed him to understand: that this wasn't really about the stew, or the watching, or the need for reassurance.
+This was my fault. That was the first thought, the one that always came first. I had done something wrong. I had looked at him the way he said—like he was my redemption, my proof that I could still create something good in the world. Because he was. He was exactly that.
 
-It was about a twelve-year-old body doing things his mind couldn't quite control. It was about feeling too much, too fast, without the language to explain it. It was about the particular kind of terror that came when every nerve was screaming and you couldn't turn it off.
+And he hated it.
 
-It was about needing, more desperately than ever, to know that he would still be there when Isaac came back.
+Of course he hated it. He was twelve years old. His body was doing things he couldn't control. His hormones were making him feel like his skin was too small and his mind was too loud and everything was too much. And somewhere in the middle of that chaos, he'd managed to articulate the one thing I couldn't bear to hear: that he felt like he existed to fix me.
 
-Aage waited. He cleared the dishes slowly, carefully, the domestic ritual itself an act of faithfulness. He waited until the light outside faded to deep blue, until the first stars began to show. He waited until the house was quiet enough that he could hear the small sounds from beyond it.
+The stew congealed in its bowl. I cleared it slowly, moving through the motions like prayer. Each dish washed, each surface wiped. The ritual of it steadied something in me. This was what I could do. This was the language I understood. I would wait. I would remain. I would be here when he came back because that was the one thing I could guarantee him that might matter.
 
-When, much later, he heard the soft rustle of movement at the edge of their land—a boy leaving, moving toward water the way he always did when the pressure got too high—Aage didn't hesitate.
+I waited until the light outside faded to deep blue, until the first stars showed themselves. I waited until the house was quiet enough that I could hear the small sounds from beyond it—the wind in the trees, the distant sound of water.
 
-He didn't follow immediately. He gave Isaac what he needed: the illusion of privacy, the mercy of a few minutes alone. 
+Then, much later, I heard it: a soft movement at the edge of our land. The specific sound of a boy leaving, moving toward water the way he always did when the pressure inside him got too high and he needed somewhere to let it out.
 
-But when enough time had passed, when he judged that Isaac had reached the pond and had time to work through the first wave of his storm, Aage rose, picked up the lamp that hung by the door, and stepped out into the darkness.
+I didn't follow immediately. He needed that—the mercy of time alone, the proof that I respected his need to leave. 
 
-He knew where Isaac was going.
+But when I judged enough time had passed, when I thought he'd had space to work through the first wave of his storm, I rose and picked up the lamp that hung by the door. I stepped out into the darkness.
 
-He always knew.
+I knew where he was going.
+
+I always knew.
