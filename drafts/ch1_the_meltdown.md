@@ -53,25 +53,3 @@ I stood up slowly, reaching across the table toward him. Some part of me still b
 He was gone before I could respond, through the kitchen, through the house, out into the gathering dark. I heard the door slam like a punctuation mark on something ending.
 
 I sat back down at the table. Our dinner was still there, cooling. I didn't move.
-
----
-
-This was my fault. That was the first thought, the one that always came first. I had done something wrong. I had looked at him the way he said—like he was my redemption, my proof that I could still create something good in the world. Because he was. He was exactly that.
-
-And he hated it.
-
-Of course he hated it. He was twelve years old. His body was doing things he couldn't control. His hormones were making him feel like his skin was too small and his mind was too loud and everything was too much. And somewhere in the middle of that chaos, he'd managed to articulate the one thing I couldn't bear to hear: that he felt like he existed to fix me.
-
-The stew congealed in its bowl. I cleared it slowly, moving through the motions like prayer. Each dish washed, each surface wiped. The ritual of it steadied something in me. This was what I could do. This was the language I understood. I would wait. I would remain. I would be here when he came back because that was the one thing I could guarantee him that might matter.
-
-I waited until the light outside faded to deep blue, until the first stars showed themselves. I waited until the house was quiet enough that I could hear the small sounds from beyond it—the wind in the trees, the distant sound of water.
-
-Then, much later, I heard it: a soft movement at the edge of our land. The specific sound of a boy leaving, moving toward water the way he always did when the pressure inside him got too high and he needed somewhere to let it out.
-
-I didn't follow immediately. He needed that—the mercy of time alone, the proof that I respected his need to leave. 
-
-But when I judged enough time had passed, when I thought he'd had space to work through the first wave of his storm, I rose and picked up the lamp that hung by the door. I stepped out into the darkness.
-
-I knew where he was going.
-
-I always knew.
