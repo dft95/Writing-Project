@@ -76,75 +76,103 @@ I don't remember the bank. I remember pine needles under my face and Isaac's han
 
 The metal fingers had frozen to the glove. He worked it loose with a knife, careful, the way he'd carried the horses' feet when he was small, and set the glove on a rock. The arm underneath was white with frost to the elbow, and the join at my shoulder had gone gray.
 
-I got the coat off. Then the boots, which took both of us. Then I looked up and saw that Isaac had stopped with one hand on his own collar.
+I got the coat off. Then the boots, which took both of us. His fingers were already starting to fumble. I watched him try to work the second one and saw him fight for the grip.
 
-"Yours too," I said. "Everything wet."
+Then I looked down at my own hands. The left one was steady. The right one was a metal fist and nothing else.
+
+"Your shirt," I said.
+
+He'd started to move toward the saddlebags. He stopped.
+
+"Off."
 
 "No."
 
-"Isaac."
+"Isaac—"
 
-"I'm fine. It's only the coat that's wet."
+"I said no." His voice was tight, pitched higher than it should be. "You're not—I'm not—no."
 
-"You went in the river with the rest of you."
+He walked to where the fire would be and started to gather wood. His hands were shaking too much to hold it. The branches fell. He picked them up. They fell again.
+
+"I'll help you get the fire—" I started.
+
+"I don't need help. I'm fine. It's one fucking river, Aage, it's not—"
+
+His hands wouldn't close. He looked down at them like they'd betrayed him, and his jaw locked.
+
+I got to my feet. The wet wool of my own shirt stuck to my ribs, and the cold was already starting to settle in for the long work of eating me. I took the branches from him. Set them down. Then I looked at him straight.
+
+"You're ten minutes from not being able to move your fingers at all," I said. "After that it's the arms. Then the legs. Then you're dead in a ditch and Ezra grows up explaining why his brother was too ashamed to take his shirt off."
+
+His face went scarlet. Not from the cold.
+
+"Fuck you," he whispered.
+
+"Probably. But that's not right now. Right now you need to get dry."
 
 "I'll dry off by the fire."
 
-"You'll catch your death by the fire."
+"No, you won't. You'll freeze into that shirt and seize up and I'll have to strip you anyway while you're screaming. That sound better?"
 
-"Then I'll catch it!" His voice cracked on the last word, up and then down, the way it had started doing that autumn, and he went red to the ears despite the cold, which I would have said was impossible. "I'm not doing it with you *looking.*"
+He looked away. His jaw was working. I could see him thinking through the options the way he thought through traps: which one least destroys him.
 
-"I won't look."
+"Turn around," he said finally. His voice was so quiet I almost didn't hear it.
 
-"You're looking right now."
+"No."
 
-"I'm looking at your face. It's the only part of you that's the right color."
+His eyes snapped back to me, wide and furious.
 
-He glared at me. His teeth were chattering so hard he had to bite down on the glare to keep it steady.
+"Look at me," I said. "Only at my face. I need you to get warm. I don't care about anything else. Turn around, get the shirt off, wrap up. That's it. Nothing you do is shameful. You're alive."
 
-There were two wool blankets in the saddlebags, dry, rolled tight. I held them out. He took one the way a man takes a summons.
+He turned around. I turned around. For a moment neither of us moved.
 
-"Turn around," he said.
+Then wet fabric hit the ground.
 
-"I'm the one who can't feel half of myself."
+My own shirt followed. The cold hit like a wall the second the air touched me, so complete it felt like the river had come back for me. I wrapped the first blanket around my chest twice, sealed the metal arm in a fold so it wouldn't leach any more heat into the rest of me, and kept my back to him.
 
-"Turn *around.*"
+Behind me, another blanket shifted. He was wound into it like a cocoon, only the top of his head visible. Even from the back, I could see his shoulders shaking.
 
-I turned around. He did the same, a few yards off, and for a while the only sounds were two people arguing with their buttons. Wet wool slapped the ground. Mine came off in stages, with a lot of swearing about the buckles on the right side, which my fingers couldn't find. His came off with a ripping sound, followed by one word I had definitely not taught him.
+"Nobody speaks of this," he said. "To anyone."
 
-"Don't say anything," he said, to the trees.
+"I know."
+
+"Hadi finds out, I kill him."
+
+"All right."
+
+"Com finds out, I burn down the chapel."
+
+"I believe you."
+
+"If Ezra—"
+
+"He won't know. I'll take it to my grave."
+
+He was quiet for a long moment. Then: "You'd better."
+
+We built the fire together, mostly me working with my left hand while he managed the flint. It took six tries. Each time it dropped, he went very still, and I didn't say anything. On the seventh try it caught. He nursed the flame like it was his only child, coaxing it higher, feeding it twigs and then branches until there was real heat.
+
+Then he sat down wrapped in the blanket like a burrito, only his furious face showing, and wouldn't look at me.
+
+"Don't," he said, before I could say anything.
 
 "I wasn't going to."
 
-"You were *going* to."
+"Yes, you were. I can hear you thinking about saying something."
 
-"I'm going to say that you ripped a perfectly good shirt."
+"You're right. I was going to say that you're alive because you're stubborn as stone."
 
-"It's not a good shirt. It's Hadi's old one."
+He glared at the fire instead of answering.
 
-"Then I'm sorry for Hadi."
+"And that you got me out of water that was trying to kill me."
 
-I heard a sound that might have been a laugh strangled halfway, or a sob. I didn't turn to check which.
+Still nothing.
 
-"Nobody hears about this," he said. His voice had gone small and fast. "Not Hadi. Not Com. *Especially* not Ezra."
+"And that twelve-year-olds are allowed to be afraid of things."
 
-"Ezra's two."
+His hands came up. He wrapped them around his mouth inside the blanket cocoon. When I realized he was crying, I turned away and kept my eyes on the fire the way he'd asked me to keep my eyes on his face.
 
-"He'll find out. He finds out everything."
-
-"I'll take it to my grave."
-
-"You'd better."
-
-By the time I heard him stop moving I had the blanket around me twice, tight at the throat, the metal arm wrapped separately in the corner of it so the cold wouldn't keep leaching up into the rest of me. I stood facing the fire pit with my back to him until he said, in a muffled voice, "Okay," and I turned to find a blanket standing in the clearing with a face at the top. It had wrapped itself to the chin and wound the loose end twice around its head like a hood. Only the eyes and the nose were out. They were furious.
-
-"Shut up," he said.
-
-"I didn't—"
-
-"Shut *up.*"
-
-He got the fire going on his fourth try. The first three times the flint fell out of his hands, and each time he hissed at it as if the flint had done it on purpose.
+We sat like that for a while. The fire grew. The cold started to become something we could fight instead of something that would just win.
 
 "Don't you seize on me," he said, not looking up. "Don't you fucking dare."
 
