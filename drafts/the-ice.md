@@ -74,11 +74,77 @@ I don't remember the bank. I remember pine needles under my face and Isaac's han
 
 "You're *blue.* You're blue, you stupid fucking... get it off. Everything wet. *Now.*"
 
-The metal fingers had frozen to the glove. He worked it loose with a knife, careful, the way he'd carried the horses' feet when he was small, and set the glove on a rock. The arm underneath was white with frost to the elbow. The skin where it joined my shoulder had gone the color of candle wax.
+The metal fingers had frozen to the glove. He worked it loose with a knife, careful, the way he'd carried the horses' feet when he was small, and set the glove on a rock. The arm underneath was white with frost to the elbow, and the join at my shoulder had gone gray.
 
-I got my shirt off. Then the rest. He got his off faster than I did, turned half away, back to me, and there was nothing in it but cold and speed. His hands couldn't work the buttons. He ripped the last two. Neither of us looked at the other more than we needed to. There were blankets in the saddlebags, two of them, wool, dry, and I have never in my life been so grateful to a sheep.
+I got the coat off. Then the boots, which took both of us. Then I looked up and saw that Isaac had stopped with one hand on his own collar.
 
-He got the fire going on his fourth try. The first three times the flint fell out of his hands.
+"Yours too," I said. "Everything wet."
+
+"No."
+
+"Isaac."
+
+"I'm fine. It's only the coat that's wet."
+
+"You went in the river with the rest of you."
+
+"I'll dry off by the fire."
+
+"You'll catch your death by the fire."
+
+"Then I'll catch it!" His voice cracked on the last word, up and then down, the way it had started doing that autumn, and he went red to the ears despite the cold, which I would have said was impossible. "I'm not doing it with you *looking.*"
+
+"I won't look."
+
+"You're looking right now."
+
+"I'm looking at your face. It's the only part of you that's the right color."
+
+He glared at me. His teeth were chattering so hard he had to bite down on the glare to keep it steady.
+
+There were two wool blankets in the saddlebags, dry, rolled tight. I held them out. He took one the way a man takes a summons.
+
+"Turn around," he said.
+
+"I'm the one who can't feel half of myself."
+
+"Turn *around.*"
+
+I turned around. He did the same, a few yards off, and for a while the only sounds were two people arguing with their buttons. Wet wool slapped the ground. Mine came off in stages, with a lot of swearing about the buckles on the right side, which my fingers couldn't find. His came off with a ripping sound, followed by one word I had definitely not taught him.
+
+"Don't say anything," he said, to the trees.
+
+"I wasn't going to."
+
+"You were *going* to."
+
+"I'm going to say that you ripped a perfectly good shirt."
+
+"It's not a good shirt. It's Hadi's old one."
+
+"Then I'm sorry for Hadi."
+
+I heard a sound that might have been a laugh strangled halfway, or a sob. I didn't turn to check which.
+
+"Nobody hears about this," he said. His voice had gone small and fast. "Not Hadi. Not Com. *Especially* not Ezra."
+
+"Ezra's two."
+
+"He'll find out. He finds out everything."
+
+"I'll take it to my grave."
+
+"You'd better."
+
+By the time I heard him stop moving I had the blanket around me twice, tight at the throat, the metal arm wrapped separately in the corner of it so the cold wouldn't keep leaching up into the rest of me. I stood facing the fire pit with my back to him until he said, in a muffled voice, "Okay," and I turned to find a blanket standing in the clearing with a face at the top. It had wrapped itself to the chin and wound the loose end twice around its head like a hood. Only the eyes and the nose were out. They were furious.
+
+"Shut up," he said.
+
+"I didn't—"
+
+"Shut *up.*"
+
+He got the fire going on his fourth try. The first three times the flint fell out of his hands, and each time he hissed at it as if the flint had done it on purpose.
 
 "Don't you seize on me," he said, not looking up. "Don't you fucking dare."
 
