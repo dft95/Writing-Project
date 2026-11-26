@@ -1,31 +1,33 @@
 # Isaac and Aage
 
-The light through the windows is thin, early-morning gray. Isaac wakes first, as he always does—some old habit his body won't let go of. Aage is still asleep, his breathing slow and even, one arm thrown across Isaac's chest like he'd reached for him in the dark and simply stayed there.
+The light through the windows is thin, early-morning gray. Isaac wakes first, as he always does—some old habit his body won't let go of. Aage is still asleep against him, naked and warm, his back pressed into Isaac's chest. One of Aage's arms is bent back, reaching, his hand resting on the nape of Isaac's neck like he's holding on even in sleep.
 
-Isaac doesn't move. He's learned, over time, not to move. Any shift in weight, any change in the bed's topology, and Aage surfaces—not all the way awake but aware enough to reach, to grip, to make sure Isaac hasn't gone. So Isaac lies still and counts the weight of that arm. It's not much. Aage isn't a large man. But it's enough to keep Isaac pinned here, present, where he tends to drift otherwise.
+Isaac doesn't move. He's learned, over time, not to move. Any shift in weight, any change in the bed's topology, and Aage surfaces—not all the way awake but aware enough to tighten his grip, to make sure Isaac hasn't gone. So Isaac stays still, curved around Aage's smaller frame, one arm draped across his waist, their skin touching along the entire length of their bodies. It's not much—Aage isn't a large man—but it's everything. It's enough to keep Isaac pinned here, present, where he tends to drift otherwise.
 
-The room is cold. Their breath makes small clouds in the air between them. Isaac can see the stubble on Aage's chin, the fine lines at the corners of his eyes that weren't there five years ago—or were there, but Isaac wasn't looking closely enough to notice. The scar on his shoulder, almost silvery in this light, from something Aage never talks about. Isaac has learned not to ask.
+The room is cold. Their breath makes small clouds in the air. Isaac can see the stubble on Aage's chin, the fine lines at the corners of his eyes that weren't there five years ago—or were there, but Isaac wasn't looking closely enough to notice. The scar on his shoulder, almost silvery in this light, from something Aage never talks about. Isaac has learned not to ask. He presses his forehead against that shoulder, against the knobs of Aage's spine, and breathes him in.
 
-Aage's fingers twitch slightly against Isaac's ribs. His eyes move behind closed lids. Isaac wonders what he's dreaming—whether it's the kind of dream you wake up grateful to have had, or the kind you're relieved to leave behind.
+Aage's fingers twitch slightly against the back of Isaac's neck. His eyes move behind closed lids. Isaac wonders what he's dreaming—whether it's the kind of dream you wake up grateful to have had, or the kind you're relieved to leave behind.
 
-After a while—Isaac isn't sure how long; time moves differently in the early morning, when the world is small and quiet—Aage's eyes open. For a moment he's somewhere else, absent, the way people are when they first surface. Then he sees Isaac and something in his face unlocks. It's not a smile, exactly. It's too private for that, too fragile. Just a small release of tension around his mouth, a slight softening in his eyes.
+After a while—Isaac isn't sure how long; time moves differently in the early morning, when the world is small and quiet—Aage's eyes open. For a moment he's somewhere else, absent, the way people are when they first surface. Then he takes a small breath and settles back further into Isaac, letting his full weight rest against him. It's not a move toward anything—just a move toward comfort, toward knowing someone's there.
 
-"You're awake," Aage says. His voice is rough, unused. 
+"You're here," Aage says. His voice is rough, unused. It's not a question.
 
 "Yeah."
 
-"How long?"
+"Okay." Aage shifts slightly, turning his head back just far enough to find Isaac's face. His hand slides from the back of Isaac's neck to his cheek, thumb brushing against stubble. He doesn't say anything else. He just pulls Isaac closer, tucking his head under Isaac's chin, their bodies fitted together like they've spent years learning exactly how to do this. Maybe they have.
 
-"Not long." This isn't true, but it doesn't matter. Aage nods like he understands that it doesn't matter, that the question isn't really about time.
+Isaac kisses the top of his head without thinking about it, the way you do with someone you've held enough times that it becomes automatic. Aage makes a small sound—not quite a word—and his arm tightens around Isaac's waist.
 
-He shifts, pushing himself up slightly on his elbow, and the cold rushes in where his body was. Isaac feels the exposure like a small shock. But Aage is careful about this—he's already moving back, already creating a shape that leaves room for Isaac to exist in, an indentation in the mattress and the warmth that Aage's skin leaves behind. His hand slides down Isaac's side and comes to rest on his hip, fingers spread out like he's trying to hold something that might slip away.
+They shift slightly, reconfiguring themselves into a more comfortable tangle. Aage ends up half on top of Isaac now, his head on Isaac's chest, one leg thrown over Isaac's thighs, their bodies nested together. Isaac's arm wraps around his back, hand spread wide between his shoulder blades. His other hand finds Aage's, their fingers linking together against Isaac's ribs.
 
-"You're okay?" Aage asks.
+The room is cold but the bed is warm. The city below them is waking up—traffic, distant voices, the world moving—but here they're still, suspended in the gray light, two people holding each other like they're the only solid thing in a world that keeps trying to shift beneath them.
 
-There are many ways to answer this question. Isaac settles on: "Yeah. Are you?"
+Aage breathes slow and even against Isaac's chest. Sometimes he falls back asleep like this. Sometimes they just stay like this, Isaac's heartbeat against Aage's ear, Aage's weight keeping Isaac grounded, anchored to the bed, to the moment, to the fact that this is real and happening.
 
-Aage considers this with the kind of seriousness most people reserve for more important things. Then he nods and rests his forehead against Isaac's shoulder—not quite on him, just barely there, the way you touch something you're not sure you're allowed to touch.
+"I'm okay," Aage says eventually, into Isaac's skin. "Are you?"
 
-They stay like that as the light changes incrementally, as the city begins to wake up below them, as other people start their days. Isaac doesn't think about yesterday or tomorrow. He just breathes and feels the weight of Aage's body against his, the pressure of that one hand on his hip, the small intimacy of being this close to someone and being allowed to be still.
+Isaac doesn't answer right away. He just holds him closer, runs his fingers along the line of Aage's spine, feels the rise and fall of his breathing. 
 
-Eventually Aage will get up. Eventually they'll move. But not yet. For now, there's just this: the bed, the cold room, the gray light, and the careful, patient way they're learning to hold each other without asking for anything except to be let close.
+"Yeah," he says finally. "I'm okay."
+
+And for now, with Aage wrapped around him and their skin against skin, it's true.
