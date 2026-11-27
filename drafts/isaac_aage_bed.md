@@ -1,35 +1,33 @@
-# Isaac and Aage (Age 14)
+# Isaac and Aage (Isaac age 12)
 
-Isaac comes in bristling. He always does—teeth bared at something, shoulders tight, hands ready. The world keeps trying to hurt him and he keeps meeting it with teeth and scar tissue. It's been two years since Aage found him and his body still doesn't know how to do anything but fight.
+Isaac comes to the bed the way he always does—like he's not sure he's allowed. Even after two years, even after Aage has never turned him away, some part of him still expects to be refused. That part lived too long on the street, starving, alone.
 
-Then he sees Aage on the bed waiting and something in him just—stops.
+Aage is already waiting. He's always waiting now, in the evenings. It's become a thing they do—the one thing Isaac doesn't have to earn or fight for. Just comes in, and Aage is there.
 
-The armor doesn't fall off. It never really does. But it cools. The constant hum of threat-assessment quiets down to something almost like rest. Isaac strips down and climbs in, pulling the blankets over them both like that will keep the world out.
+"Hey," Aage says. Just that. Not a question, not a demand. Just acknowledgment.
 
-Aage doesn't grab. He learned that fast—Isaac doesn't like sudden movements, doesn't like feeling trapped. So Aage just waits, steady as a wall, until Isaac figures out how to fit against him. It takes a minute. Isaac's body is still suspicious of comfort. But then Isaac settles, back against Aage's chest, one of Aage's arms coming around him like it's supposed to be there.
+Isaac climbs in. He's smaller than he should be for twelve—the first two years of his life were spent running and hiding and eating whatever he could find. His ribs still show if you look. Aage has stopped trying to hide how much this bothers him. Sometimes Isaac catches him looking at his chest with something like fury in his face, and he understands: Aage is angry at all the people who let this happen. At the world that did this to him.
 
-"You're tense," Aage says. It's not a question.
+They settle together. Aage's arm comes around Isaac's waist, pulling him back against his chest. Isaac fits into the curve of him like he was made for this space. His small frame disappears into Aage's larger one and for a moment, just a moment, Isaac stops being afraid.
 
-"I'm always tense," Isaac says back, but it's softer than it would be with anyone else. His jaw unclenches a fraction. 
+"You're okay?" Aage asks.
 
-"Yeah. But less when you're here."
+"Yeah." Isaac's voice is small. He still sounds like a child, though he's seen things children shouldn't see. "You?"
 
-Isaac doesn't argue. They both know it's true. Out in the world, Isaac is sharp-edged and angry, ready to snap at anything. Here in the dark with Aage, he can let the blade dull for a few hours. Here, he doesn't have to prove he's worth keeping alive. Aage already knows he is.
+"Better now," Aage says. It's what he always says. And Isaac believes it, mostly. Aage holds him like Isaac is the thing that keeps him alive. Like if Isaac left, something in Aage would break irreparably.
 
-Aage's hand finds the scar tissue on Isaac's shoulder—from the Combine, from before Aage knew him, from when Isaac had to survive alone. He traces it like he's reading a map. Isaac feels it and doesn't flinch. With Aage, the scars are just proof that he made it. They're not weakness.
+Isaac understands that feeling. He's been sure since he was ten that if Aage left, he would die. Not from hunger or cold—he could survive those things. But from the knowing that the only person who ever loved him had abandoned him. That would kill something essential.
 
-"You're safe here," Aage says, the same words he's been saying for two years, the words that still sound impossible but less impossible than they used to.
+They lie like that in the dark. Aage's body is a furnace and Isaac presses into it, trying to absorb the warmth, the safety, the impossible fact that someone is choosing to stay. That Aage comes back every night. That Aage looks for him if he's not there.
 
-Isaac's breathing slows. The anger that lives in his chest like a second heartbeat quiets down. His hands, which are always balled into fists, open slightly. He lets himself rest his head back against Aage's collarbone and just—breathe.
+Aage's breathing slows. His hand, which is scarred and calloused and sometimes shakes, rests on Isaac's chest. He can feel Isaac's heartbeat, the proof of his presence, and something in Aage's body relaxes.
 
-They fit together like they were always supposed to. Aage's damaged body and Isaac's wild one, the warrior and the survivor, two people who know exactly what it means to be broken and still standing. Here in the dark, Aage doesn't have to be the weapon he became. Isaac doesn't have to be the feral thing he had to be to live.
+"I'm here," Aage says softly. It's the most important thing he knows how to say. "I'm not going anywhere."
 
-For a few hours, they can just be two scared things holding each other still.
+Isaac doesn't answer because he can't, because his throat is tight, because he's twelve and he's already loved and lost so much. But he reaches back and grabs Aage's wrist, anchors him, makes sure this is real.
 
-"I know," Isaac says finally, into the dark. Not really to Aage. Just out into the world, like it needs to be said. Like he needs to hear himself say it.
+Aage doesn't pull away. He wraps his arm tighter and Isaac finally, finally lets himself breathe. The world is still dangerous. Tomorrow it will be dangerous again. But tonight, in this small dark room, Isaac is not alone.
 
-Aage pulls him closer. His arm is steady and warm and doesn't let go.
+He sleeps with his hand holding Aage's arm, refusing to let go even in unconsciousness. And Aage, damaged and haunted and trying to be human again, stays exactly where he is.
 
-Isaac sleeps the sleep of someone who finally stopped fighting. It won't last forever—by morning he'll be bristling again, ready for the next thing. But for tonight, with Aage's heartbeat under his ear and Aage's arm keeping the nightmares at a distance, Isaac rests.
-
-He's learning that safety is real. That it can be held. That sometimes, with the right person, you can put down the weapons and just exist.
+He promised he would. And he keeps his promises to Isaac. That's the whole thing. That's everything.
