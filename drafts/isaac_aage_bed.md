@@ -1,35 +1,35 @@
-# Isaac and Aage (Aage's POV)
+# Isaac and Aage (Age 14)
 
-I wake up reaching. It's still dark outside, the light thin and gray, and my first thought before anything else settles into focus is: is he still here?
+Isaac comes in bristling. He always does—teeth bared at something, shoulders tight, hands ready. The world keeps trying to hurt him and he keeps meeting it with teeth and scar tissue. It's been two years since Aage found him and his body still doesn't know how to do anything but fight.
 
-He is. Isaac is still here, solid behind me, one arm across my waist. I can feel his heartbeat against my back. His breath is warm on my shoulder. I let my own breathing slow down, matching his, and my hand stays where it is—on the back of his neck, fingers just barely touching his skin. It's something I do in my sleep, apparently. Something my body does to keep him from leaving.
+Then he sees Aage on the bed waiting and something in him just—stops.
 
-I've never been good at this. At trusting that someone will still be there in the morning. But Isaac has been. For long enough now that maybe I'm allowed to believe in it.
+The armor doesn't fall off. It never really does. But it cools. The constant hum of threat-assessment quiets down to something almost like rest. Isaac strips down and climbs in, pulling the blankets over them both like that will keep the world out.
 
-The room is cold. I can see my breath in the air between us. Isaac's forehead is pressed against my shoulder blade, against the scar there—the one I don't talk about, the one he stopped asking about a long time ago. That was kind of him. I appreciate kindness, even when I'm not always sure what to do with it.
+Aage doesn't grab. He learned that fast—Isaac doesn't like sudden movements, doesn't like feeling trapped. So Aage just waits, steady as a wall, until Isaac figures out how to fit against him. It takes a minute. Isaac's body is still suspicious of comfort. But then Isaac settles, back against Aage's chest, one of Aage's arms coming around him like it's supposed to be there.
 
-I don't want to move. If I move, something might shift. If I move, the spell might break. So I stay still, feeling the full length of Isaac against me, skin to skin, naked and exposed in a way that should terrify me but somehow doesn't. Not with him. Not anymore.
+"You're tense," Aage says. It's not a question.
 
-After a while—I don't know how long; time is different in the early morning—I open my eyes. For a second I'm not quite here, not quite awake. Then I feel Isaac against me and reality settles back into place. I let myself settle deeper into him, let him take my weight. He doesn't pull away. He never pulls away.
+"I'm always tense," Isaac says back, but it's softer than it would be with anyone else. His jaw unclenches a fraction. 
 
-"You're here," I say. I mean it as a statement, but it comes out like a question.
+"Yeah. But less when you're here."
 
-"Yeah," he says.
+Isaac doesn't argue. They both know it's true. Out in the world, Isaac is sharp-edged and angry, ready to snap at anything. Here in the dark with Aage, he can let the blade dull for a few hours. Here, he doesn't have to prove he's worth keeping alive. Aage already knows he is.
 
-"Okay." I turn my head back, just enough to see his face. My hand moves from his neck to his cheek. He has stubble there, rough under my thumb. I could say something clever or push him away with a joke. Instead I just pull him closer, tucking myself under his chin, fitting our bodies together like this is something we've practiced, something we know how to do.
+Aage's hand finds the scar tissue on Isaac's shoulder—from the Combine, from before Aage knew him, from when Isaac had to survive alone. He traces it like he's reading a map. Isaac feels it and doesn't flinch. With Aage, the scars are just proof that he made it. They're not weakness.
 
-He kisses the top of my head. I didn't know he was going to do that, but I make a small sound anyway—not quite words—and tighten my arm around his waist. He's warm. He smells like sleep and like something I've started to think of as just Isaac.
+"You're safe here," Aage says, the same words he's been saying for two years, the words that still sound impossible but less impossible than they used to.
 
-We shift around, finding a better position. I end up mostly on top of him now, my head on his chest, one leg thrown over his thighs. His arms come around me—one hand between my shoulder blades, spreading wide, the other finding my hand and linking our fingers together against his ribs. This feels better. This feels right. This feels like I could breathe.
+Isaac's breathing slows. The anger that lives in his chest like a second heartbeat quiets down. His hands, which are always balled into fists, open slightly. He lets himself rest his head back against Aage's collarbone and just—breathe.
 
-The city is waking up outside. I can hear it through the windows—traffic, voices, the world moving on without us. But in here it's just the two of us, holding each other in the gray light like we're the only real things in a world that keeps trying to shift and spin. Like he's the only thing keeping me grounded.
+They fit together like they were always supposed to. Aage's damaged body and Isaac's wild one, the warrior and the survivor, two people who know exactly what it means to be broken and still standing. Here in the dark, Aage doesn't have to be the weapon he became. Isaac doesn't have to be the feral thing he had to be to live.
 
-His heart is steady against my ear. I listen to it and don't think about anything else—not yesterday, not tomorrow, not all the ways this could go wrong. Just this: his arms around me, my weight against his chest, the fact that he's still here and he's still holding on.
+For a few hours, they can just be two scared things holding each other still.
 
-"I'm okay," I say eventually, into his skin. "Are you?"
+"I know," Isaac says finally, into the dark. Not really to Aage. Just out into the world, like it needs to be said. Like he needs to hear himself say it.
 
-He doesn't answer right away. Just holds me closer and runs his fingers along my spine, feeling me breathe. It takes him a moment, like he has to think about whether it's true.
+Aage pulls him closer. His arm is steady and warm and doesn't let go.
 
-"Yeah," he says finally. "I'm okay."
+Isaac sleeps the sleep of someone who finally stopped fighting. It won't last forever—by morning he'll be bristling again, ready for the next thing. But for tonight, with Aage's heartbeat under his ear and Aage's arm keeping the nightmares at a distance, Isaac rests.
 
-And I believe him. For now, with him wrapped around me and both of us naked and exposed like this, I actually believe him. I believe in this.
+He's learning that safety is real. That it can be held. That sometimes, with the right person, you can put down the weapons and just exist.
